@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently Learning and also read to collborate with.<br>Ask me about
+I'm currently Learning and also ready to collborate with.<br>Ask me about
 
 
 ## 🌐 Socials:
